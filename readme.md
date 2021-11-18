@@ -1,1 +1,1 @@
-All the bullshity data for Astronomy lolxd
+Data for Astronomy Lab @University Heidelberg
